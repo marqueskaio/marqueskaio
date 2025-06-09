@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @marqueskaio
 - 📫 How to reach me 
-      www.linkedin.com/in/marqueskaioken
+      https://www.linkedin.com/in/marqueskaio1/
 
